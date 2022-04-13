@@ -56,4 +56,9 @@ If you ever want to have a chat with me, feel free to reach out to me here: **[w
                                                                                 
 Also **horsicq** is best waifu/husbando 💖 on Github check them out, they make some really cool things.
 Their link: **https://github.com/horsicq**
+
+⭐ Credits:
+------------
+
+Shout-out to **Auralanity** on DevianArt for the banner for the social preview and on my profile.
                                                                                
